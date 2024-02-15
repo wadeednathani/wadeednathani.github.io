@@ -1,1 +1,1 @@
-# wadeednathani.github.io
+# wadeed.me
